@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Binoy Mondal, a student.
+- 👋 Hi, I’m Binoy Mondal, an Engineer.
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Live in the Present.
 

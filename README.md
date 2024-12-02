@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Binoy Mondal, an Engineer.
+- 👋 Hi, I’m Binoy Mondal, a Freelance Software Engineer.
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Live in the Present.
 
